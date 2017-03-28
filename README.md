@@ -1,0 +1,1 @@
+# magikano12.github.io
